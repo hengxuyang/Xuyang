@@ -1,6 +1,6 @@
 ## Heyy! I'm Xu Yang 🐏🍀<br><br>
 
-🖥️ Computing Science student at SIT-UoFG<br>
+🖥️ Computing Science student at SIT-UofG<br>
 💪🏻 Always tryna do better <br>
 🌍 Come connect with me on [Linkedin](https://www.linkedin.com/in/hengxuyang/) and [Instagram](https://www.instagram.com/hengxuyangg/)<br>
 
